@@ -15,4 +15,4 @@ This Privacy Policy describes how we collect, use, and handle your personal info
 - This app is a demonstration of the features that can be programmed and all stored signatures will be deleted shortly ,no more than week after signing.
 
 ## Contact Us
-If you have any questions about this Privacy Policy, please contact us at: tototheb@bellatlantic.net
+If you have any questions about this Privacy Policy, please contact us at: sam.koo@ebankdiscovery.com
